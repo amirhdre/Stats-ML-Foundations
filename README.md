@@ -8,6 +8,7 @@ Welcome to the course!
 # Dates and Times
 
 Dates: Jan 7–17, 2025 (Tues–Fri of each week) Time: 5:00–8:00 PM (3×50-minute segments per day with 10-minute breaks)
+
 Class URL: https://JHUBlueJays.zoom.us/my/adaraie
 
 # Description
